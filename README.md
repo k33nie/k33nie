@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web , Android development
 - 🌱 I’m currently learning web, android development
 - 💞️ I’m looking to collaborate on Glittter
-- 📫 How to reach me just msg me on discord nobodyhunter
+- 📫 How to reach me just msg me on discord k33niedev
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: i am 16
 
